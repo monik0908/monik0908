@@ -13,4 +13,4 @@
 - 💻 Apasionada por unir lógica, diseño y tecnología  
 - 🚀 Aquí encontrarás mis proyectos y avances
 
-- 📫 Puedes contactarme en: moni-k0908@gmail.com
+- 📫 Puedes contactarme en: moni-k0908@hotmail.com
